@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Project related to App or Web
 - 📫 How to reach me PhineBusinessBoy@gmail.com
 - 😄 Pronouns: Puspraj
-- ⚡ Fun fact: Coder
+- ⚡ Fun fact: Less Coder more Marketing POV
 
 <!---
 PusprajYadav/PusprajYadav is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
